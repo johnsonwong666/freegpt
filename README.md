@@ -12,7 +12,7 @@
 
 > 最快的为 5⭐️，最慢的为 0⭐️。
 
-- http://fby.xiamis.xyz/ （虾米 AI）（⭐️⭐️⭐️⭐️⭐️）（速度快、稳定 🚀🚀🚀🚀🚀🚀，无需梯子）
+- https://home.xiamis.xyz/ （虾米 AI）（⭐️⭐️⭐️⭐️⭐️）（速度快、稳定 🚀🚀🚀🚀🚀🚀，无需梯子）
 - https://poe.com/ （Poe）（⭐️⭐️⭐️⭐️⭐️）
 - https://chatbot.theb.ai/ （BAI 聊天机器人）（⭐️⭐️⭐️⭐️⭐️）
 - https://chat9.yqcloud.top/ （YQCloud 聊天机器人）（⭐️⭐️⭐️⭐️）
